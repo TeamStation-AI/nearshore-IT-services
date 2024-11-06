@@ -75,7 +75,7 @@ Our reach includes top talent from **Mexico, Colombia, Argentina, Brazil**, and 
 
 ---
 
-## Keywords for SEO and SERP Optimization
+## Keywords
 
 - **Nearshore IT staffing**
 - **Hiring Latin American software engineers**
